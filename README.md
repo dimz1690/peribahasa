@@ -1,0 +1,2 @@
+# peribahasa
+Kumpulan Peribahasa Indonesia
